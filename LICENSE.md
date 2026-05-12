@@ -1,4 +1,4 @@
-#  
+#  advanced Script for barry's prison run is the best barry's prison run Script, featuring auto-collect and anti-ban. Safe and powerful for all your
 
 
 
